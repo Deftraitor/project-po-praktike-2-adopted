@@ -1,0 +1,1 @@
+# project-po-praktike-2-adopted
